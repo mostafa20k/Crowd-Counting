@@ -1,1 +1,1 @@
-Contributers: Mostafa Karimpoorfard, Fateme Ebrahimi
+Contributers: Mostafa Karimpoorfard, Fateme Ebrahimi.
